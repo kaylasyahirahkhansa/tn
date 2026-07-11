@@ -1,5 +1,9 @@
 # TN
 
+important note : consciousness only evolved as biological survival mechanism in a fast paced, quick second to second survival need unlike the unconcious plant which had threat of more slower death threat. animals face second to second death threat. so cons has to be taken into that considersation as well.
+
+freak accident on multicell statistics on earth compared to exo planet still result in high probs of living things
+
 **0. Foundations of TN**
 
 0A. Introduction to Non Dualism
