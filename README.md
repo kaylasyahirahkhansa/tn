@@ -4,6 +4,8 @@ important note : consciousness only evolved as biological survival mechanism in 
 
 freak accident on multicell statistics on earth compared to exo planet still result in high probs of living things
 
+important: integration of emotions as neurochemical signals to accompny syllabus 3 understanding
+
 **0. Foundations of TN**
 
 0A. Introduction to Non Dualism
